@@ -5,3 +5,5 @@ Please support Spaceroast so he can continue making these amazin remixes for us 
 Spotify: https://open.spotify.com/artist/1EPZJb9PkAT60jX4vWvg8u
 
 Discord: https://discord.gg/4qKZwUjAsc
+
+YouTube: https://www.youtube.com/channel/UCBV95E3hXEZLaewm_x3hpqg
